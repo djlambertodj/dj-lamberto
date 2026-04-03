@@ -1,4 +1,4 @@
-dj lamberto nome d'arte di Lamberto Mosca è un Disc Jockey e produttore discografico, remixer italiano di fama internazionale, considerato uno dei pionieri della musica house, disco,soul e funk con una carriera decennale,portando il suo sound nei club più prestigiosi di Ibiza capitale mondiale della nightlife.
+DJ Lamberto nome d'arte di Lamberto Mosca è un Disc Jockey e produttore discografico, remixer italiano di fama internazionale, considerato uno dei pionieri della musica house, disco,soul e funk con una carriera decennale,portando il suo sound nei club più prestigiosi di Ibiza capitale mondiale della nightlife.
 https://djlamberto.jimdosite.com 
 https://www.instagram.com/djlambertodj/
 https://www.facebook.com/djlamberto
@@ -16,12 +16,10 @@ https://www.imdb.com/it/name/nm17056081/
 https://music.apple.com/it/album/look/1814911021?i=1814911026
 https://www.discogs.com/artist/16160233-djlamberto
 https://isni.org/isni/0000000523900797
-https://orcid.org/0009-0000-7549-8323
 https://www.shazam.com/it-it/album/1814911021/look-single
 https://music.amazon.it/albums/B0F8XF67L8
 https://www.shazam.com/it-it/artist/dj-lamberto/1799543630
 https://www.last.fm/music/DJ+Lamberto
-https://www.shazam.com/it-it/song/1814911026/look
 https://djlamberto.jimdosite.com/biografia/
 https://x.com/djlamberto
 
